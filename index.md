@@ -1,4 +1,3 @@
-## summaries
 ## A
 - [**Abbott**](https://docs.google.com/document/d/e/2PACX-1vTTozy3CAQ3xaUqH42xldwYAH6tefmXCn0tTRiEAmjif6iIP26cKi4WaYWQ_cnDcx09v37_Huler5lA/pub)
 
