@@ -39,6 +39,7 @@
 - [**Red Sonja (2019)**](https://docs.google.com/document/d/e/2PACX-1vRLXGLv94p6rLdPjF5CcjU9aO9AQLtVNtV-WqNOHYOMo8gh_IARpH7xnKqeHt4XmbD6cc1TGz8kJ0yx/pub)
 
 ## S
+- [**Sea of Stars**](https://docs.google.com/document/d/e/2PACX-1vQU19Wx3sofGzRj5znAoupEGC8Td0ZsRk8A6D8yTv0K5J9w6e0DhnMLtX6oloRnYULbPZmbFkGInQ9-/pub)
 - [**Self / Made**](https://docs.google.com/document/d/e/2PACX-1vTvz8kjv_YBUBHfzKPngV2_swJMoalGFT-dPM1nGN09GZybd6on23Gtf6Cf_CKgk4Y5D_p9R5gyWTfn/pub)
 - [**Skyward**](https://docs.google.com/document/d/e/2PACX-1vRSId7gmsqEwUjYVy942VCIXGkYxgYauJxxRHF_X2E97GyhEaVGwWIxCYMUNcUINuWJdGK_W-i9_SyN/pub)
 - [**Strangers in Paradise XXV**](https://docs.google.com/document/d/e/2PACX-1vR9YkdqxJ4cSAFlpc9rJyQzP-0zVLmJa5ujkgxnkhtqStQxxtnedFgCm41EWytmxVJQG7Y7czUK4Ub9/pub)
