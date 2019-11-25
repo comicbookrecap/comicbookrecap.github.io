@@ -3,7 +3,7 @@
 
 ## B
 
-|-|-|
+|---|---|
 |s|s|
 
 - [**Bedtime Games**](https://docs.google.com/document/d/e/2PACX-1vSvIQ4fAkeyH0ECR9sGP5oMeuATxsdnz3SCL8H9IJ_b_G-Kc_FULvW76MitCGBIYVj1ewavRmz6n6ic/pub)
